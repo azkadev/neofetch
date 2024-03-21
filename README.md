@@ -1,1 +1,5 @@
-# neofetch
+IyBuZW9mZXRjaAo=
+
+<!-- START GLOBAL CORPORATION -->
+404: Not Found
+<!-- END GLOBAL CORPORATION -->
